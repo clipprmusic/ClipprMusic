@@ -1,3 +1,2 @@
-Some random video game team owns this account
-
-[ænd aɪ gɛs ə cɑnlæŋɚ tu]
+Some guy does stuff here
+Maybe helps in some other place idk
